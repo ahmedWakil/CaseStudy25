@@ -1,1 +1,1 @@
-# Case Study 25
+# Case study 25
